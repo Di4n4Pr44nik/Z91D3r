@@ -4,3 +4,9 @@
 Seus, Alicorn, Morov°= headache🩵
 17--- she/her°? Multifandom!!! you're welcome to int//proshippers, pedos MASSIVE DNI THEN🚫 ) I love making skins/literally only reason I play pony town//if I don't answer, means I'm offtab ⚠️just leave a whisp⚠️ SHY AT FIRST OR IM JUST IGNORING!
 ![Image Alt](https://private-user-images.githubusercontent.com/176760935/357810140-137749d1-d481-4739-9333-230f61b140a7.gif?jwt=eyJhbGciOiJIUzI1NiIsInR5cCI6IkpXVCJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3MjM2Mzg2NTYsIm5iZiI6MTcyMzYzODM1NiwicGF0aCI6Ii8xNzY3NjA5MzUvMzU3ODEwMTQwLTEzNzc0OWQxLWQ0ODEtNDczOS05MzMzLTIzMGY2MWIxNDBhNy5naWY_WC1BbXotQWxnb3JpdGhtPUFXUzQtSE1BQy1TSEEyNTYmWC1BbXotQ3JlZGVudGlhbD1BS0lBVkNPRFlMU0E1M1BRSzRaQSUyRjIwMjQwODE0JTJGdXMtZWFzdC0xJTJGczMlMkZhd3M0X3JlcXVlc3QmWC1BbXotRGF0ZT0yMDI0MDgxNFQxMjI1NTZaJlgtQW16LUV4cGlyZXM9MzAwJlgtQW16LVNpZ25hdHVyZT01MTFiNzljMjBmN2U5YzFjOGJmYWU5YThjZGQ1Y2NmOTJhMmRhMjhiZGRmZDJkZTIzMTUzYWM3ZmFjYzY3ZDExJlgtQW16LVNpZ25lZEhlYWRlcnM9aG9zdCZhY3Rvcl9pZD0wJmtleV9pZD0wJnJlcG9faWQ9MCJ9.G_ABsX18IatBCkcovgifRb72CueivfZeBFzc2N8RKxY)
+
+
+
+
+
+having a massive migraine everyday 
