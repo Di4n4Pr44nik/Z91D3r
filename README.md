@@ -8,5 +8,4 @@ Seus, Alicorn, Morov°= headache<3
 
 
 
-
-having a massive migraine everyday 
+massive migraine everyday 
